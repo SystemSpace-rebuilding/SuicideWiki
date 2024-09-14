@@ -1,0 +1,2 @@
+# SuicideWiki
+N/A
